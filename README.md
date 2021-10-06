@@ -7,5 +7,5 @@ I'm Clare, I live in London
 - :beginner: I’m looking for help with learning Norwegian
 - 💬 Ask me about skydiving 
 - :postal_horn:How to reach me: carrier pigeon, skylark, or gmail
-- ⚡ Fun fact: maggots breathe through their posteriors
+
 
